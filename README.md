@@ -1,0 +1,2 @@
+# tadytomame
+repositar pro czechitas
